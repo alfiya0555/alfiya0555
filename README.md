@@ -91,7 +91,7 @@ I'm currently looking for internship opportunities where I can gain industry exp
 
 ## 🤝 Let's Connect
 
-- 💼 LinkedIn: [My LinkedIn](https://www.linkedin.com/in/alfiya-muhammad-627420420)
+- 💼 LinkedIn: [My LinkedIn](https://www.linkedin.com/in/alfiya-muhammad)
 - 🐙 GitHub: [@alfiya0555](https://github.com/alfiya0555)
 
 ---
